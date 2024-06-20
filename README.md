@@ -7,4 +7,4 @@ Colaborated by: <br/>
 @GermanS04 <br/>
 @EmilioDomM <br/>
 @imanolgzz <br/>
-@SergioTomas5004 <br/>
+@SergioVargasDev<br/>
